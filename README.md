@@ -1,1 +1,0 @@
-# PracticaCV_CristobalMC
